@@ -104,7 +104,7 @@ I don't have a problem with selfshipping in general, just those specific selfshi
 ———————————————————————————————————————————————
 
 <p align="center">
-I kin Loki, due to this I view comments and such made about Loki as comments made about me and sometimes refer to Loki as me and call myself the God of Mischief. I do not have anything against doubles, but please do not interact unless we are already friends.
+I kin Loki, due to this I view comments and such made about Loki as comments made about me and sometimes refer to Loki as me and call myself the God of Mischief. I do not have anything against doubles, but please do not interact if you're a double unless we are already friends.
  
 <p align="center">
 I enjoy adding Norse runes in the Elder Futhark script on things, specifically online. So feel free to decode the ones you find as they do mean something and isn't just gibberish.
