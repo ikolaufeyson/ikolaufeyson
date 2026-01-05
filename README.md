@@ -77,7 +77,21 @@ $\small{\textsf{ }}$
 ———————————————————————————————————————————————————————————————
 
        𝐌𝐨𝐧𝐚𝐜𝐡𝐨𝐩𝐬𝐢𝐬 | ᴛʜᴇ ᴘᴇʀꜱɪꜱᴛᴇɴᴛ ꜰᴇᴇʟɪɴɢ ᴏꜰ ʙᴇɪɴɢ ᴏᴜᴛ ᴏꜰ ᴘʟᴀᴄᴇ, ꜱɪᴍɪʟᴀʀ ᴛᴏ ꜰᴇᴇʟɪɴɢ ʟɪᴋᴇ ᴀ ᴍɪꜱꜰɪᴛ ɪɴ ᴀ ᴘᴀʀᴛɪᴄᴜʟᴀʀ ᴇɴᴠɪʀᴏɴᴍᴇɴᴛ.
-     
+
+        <div align="center">  
+While you're here, send me a gimmick or sign my ata!
+
+<br />
+<br />
+
+${\textsf{\color{#ffe169}ㅤㅤ🗡ㅤㅤ}}$
+[StrawPage](https://ikollaufeyson.straw.page/)
+${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
+[Atabook](https://ikol.atabook.org/)
+${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
+[Lovemail](https://ikollovemail.straw.page/)
+${\textsf{\color{#ffe169}ㅤㅤ🗡ㅤㅤ}}$
+
   <p align="center">
 $\tiny\textcolor{gray}{\textsf{ᚦᛖᚱᛖᛋ ᚾᛟ ᛋᚨᚲᚱᛁᚠᛁᚲᛖ ᚦᚨᛏ ᛁ ᚹᛟᚾᛏ ᛗᚨᚲᛖ}}$
 
