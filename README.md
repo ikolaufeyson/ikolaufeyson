@@ -1,7 +1,7 @@
 
                                            “ ᴀꜱ ᴇᴠᴇʀʏ ᴇᴍᴏᴛɪᴏɴ ʙɪɴᴅꜱ, ɪ ᴊᴜꜱᴛ ᴡᴀɴɴᴀ ᴛʜʀᴏᴡ ɪᴛ ᴀʟʟ ᴀᴡᴀʏ! ”
 
-<p align="center">
+<!--<p align="center">
 <img width="140" src="https://komarev.com/ghpvc/?username=ikolaufeyson&color=32cd32" alt="views count">
   
   ![thattooksolong](https://github.com/user-attachments/assets/1bec7c48-7d5d-4091-9717-74e5ac83e7a0)
@@ -13,7 +13,7 @@
 
 
 
-<p align="center">
+<!--<p align="center">
 Loki, Ikol, Meph
   <p align="center">
     $\tiny\textcolor{gray}{\textsf{(Loki and Ikol are preferred)}}$
@@ -25,7 +25,7 @@ $\color{#32cd32}{\textsf{She/Him (He pref)}}$
  I do have Discord but I do not give it out to random people so if you wish to friend me on there, I'll have to know you for more than just an hour. My friend requests and DMs are off for my own safety (Discord only), so I'll initiate adding you on Discord once I'm comfortable.
 
 <!--                                               “ ʜᴀɪʟ ᴍʏ ᴘʀᴏᴜᴅ ᴋɪɴɢ, ᴏɴ ᴀɴᴅ ᴏɴ, ᴏɴ ᴀɴᴅ ᴏɴ. ”-->
-<p align="center">
+<!--<p align="center">
 $\color{#32cd32}{\textsf{ᚺᚨᛁᛚ ᛗᛃ ᛈᚱᛟᚢᛞ ᚲᛁᛝ ᛟᚾ ᚨᚾᛞ ᛟᚾ ᛟᚾ ᚨᚾᛞ ᛟᚾ}}$
  
 <p align="center">
@@ -41,7 +41,7 @@ $\color{#32cd32}{\textsf{ᛁ ᚹᛁᛚᛚ ᚠᛁᚷᚺᛏ ᚠᛟᚱ ᛃᛟᚢ �
 <!--<p align="center">
 $\color{#32cd32}{\textsf{ᛃᚷᚷᛞᚱᚨᛋᛁᛚ}}$-->
 
-<p align="center">
+<!--<p align="center">
 <img width="128" height="128" alt="1268203783146573886" src="https://github.com/user-attachments/assets/2612f913-e5eb-4846-8f14-7ca25e56a358" />
 
 
@@ -51,7 +51,7 @@ $\color{#32cd32}{\textsf{ᛃᚷᚷᛞᚱᚨᛋᛁᛚ}}$-->
 
 <!--<img width="400" src="https://media1.tenor.com/m/2k99zKb6S00AAAAC/loki-sylvie.gif" alt="gif2">-->
 
-</p>
+<!--</p>
 
 ———————————————————————————————————————————————————————————————
 <p align="center">
@@ -69,7 +69,7 @@ I sometimes call people dear and darling so if you're uncomfortable with it, ple
 <p align="center">
 <!--<img width="70" height="85" alt="2095e6d435a2884929ebd7f9f660bdf126" src="https://github.com/user-attachments/assets/3a7a8c0e-4561-455a-92d0-1f9d3d123999" />-->
 
-<p align="center">
+<!--<p align="center">
 $\color{hsl(0,100%,50%)}{\textsf{Do NOT whisper me if you just want supporter benefits or help with object limits, you will get ignored or I'll be hostile towards you.
 }}$
 
@@ -99,9 +99,9 @@ $\tiny\textcolor{gray}{\textsf{ᚦᛖᚱᛖᛋ ᚾᛟ ᛋᚨᚲᚱᛁᚠᛁᚲ�
 
 <!--![6bb6a66f366acb764f56c2a7cbdef808](https://github.com/user-attachments/assets/3f6df867-7bda-4749-ae69-b22990a25e9a)-->
 
-———————————————————————————————————————————————————————————————
+<!--———————————————————————————————————————————————————————————————
 
-<p align="center">
+<!--<p align="center">
 $\color{#32cd32}{\textsf{ᚲᚾᛟᚹ ᚱᛁᚷᚺᛏ ᚾᛟᚹ ᚦᛖ ᛈᛚᚨᚾ ᛁ ᛗᚨᛞᛖ ᚹᛁᛚᛚ ᚷᚢᛁᛞᛖ ᚢᛋ ᚺᛟᛗᛖ}}$
 
 <p align="center">
