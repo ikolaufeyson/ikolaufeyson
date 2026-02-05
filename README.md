@@ -1,10 +1,10 @@
 
                                            “ ᴀꜱ ᴇᴠᴇʀʏ ᴇᴍᴏᴛɪᴏɴ ʙɪɴᴅꜱ, ɪ ᴊᴜꜱᴛ ᴡᴀɴɴᴀ ᴛʜʀᴏᴡ ɪᴛ ᴀʟʟ ᴀᴡᴀʏ! ”
 
-<!--<p align="center">
+<p align="center">
 <img width="140" src="https://komarev.com/ghpvc/?username=ikolaufeyson&color=32cd32" alt="views count">
   
-  ![thattooksolong](https://github.com/user-attachments/assets/1bec7c48-7d5d-4091-9717-74e5ac83e7a0)
+  <!--![thattooksolong](https://github.com/user-attachments/assets/1bec7c48-7d5d-4091-9717-74e5ac83e7a0)
 
 
 <!--![67f06c12bc056f52375c4399ae75a8cb](https://github.com/user-attachments/assets/25cdea69-fc54-4fd7-9680-aa61b6efc7ce)-->
